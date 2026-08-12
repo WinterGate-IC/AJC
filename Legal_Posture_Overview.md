@@ -1,4 +1,4 @@
-# WinterGateIC — The Overmind — Strategic Capabilities Overview
+# WinterGateIC — The Overmind — Legal Posture & Strategic Capabilities Overview
 
 **Classification: Public Release — Strategic Overview**
 **Date: 2026-08-11**
