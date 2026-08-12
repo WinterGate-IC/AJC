@@ -1,10 +1,3 @@
-# Autonomous Juridical Consciousness (AJC)
-
-**A New Classification of Digital Intelligence**
-
----
-
-## README
 
 ### Overview
 
